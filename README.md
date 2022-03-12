@@ -1,3 +1,3 @@
 # QR-C
 
-We are the GOATs, Chibuzor & Akin
+We are the GOATs, Chibuzor & Akin.
